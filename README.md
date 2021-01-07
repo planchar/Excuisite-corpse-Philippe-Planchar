@@ -8,3 +8,4 @@ It could spell out good things in the future.
 I hear the large bird saying "Philippe will become a master coder in under 7 months"
 
 And then the bird hit a wall and fly back again ! It is indeed a omen, a second one ... Predicting an intense learning.
+The bird rested on a branch while still being dazed from the wall. But little did he know the branch was still under development, and a snake was on its way!!!
