@@ -8,3 +8,7 @@ It could spell out good things in the future.
 I hear the large bird saying "Philippe will become a master coder in under 7 months"
 
 And then the bird hit a wall and fly back again ! It is indeed a omen, a second one ... Predicting an intense learning.
+
+The next morning, not one but 100 birds came at my window.
+They were singing: "He's the **chosen one** ! The super coder that appears every 1000 years."
+"Will he save or destroy our World?"
