@@ -9,6 +9,8 @@ I hear the large bird saying "Philippe will become a master coder in under 7 mon
 
 And then the bird hit a wall and fly back again ! It is indeed a omen, a second one ... Predicting an intense learning.
 
-The next morning, not one but 100 birds came at my window.
-They were singing: "He's the **chosen one** ! The super coder that appears every 1000 years."
-"Will he save or destroy our World?"
+The bird rested on a branch while still being dazed from the wall. But little did he know the branch was still under development, and a snake was on its way!!!
+
+Checking out the branch, the snake came very very close to the bird.
+As it was about to **eat it**... Philippe's computer rang the coffee break.
+The snake was in conflict. "Should I eat now or drink a coffee?", it thought.
