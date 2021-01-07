@@ -7,4 +7,4 @@ It could be a good omen!
 It could spell out good things in the future.
 I hear the large bird saying "Philippe will become a master coder in under 7 months"
 
-And the, the bird hit a wall and fly back again ! It is indeed a omen, a second one ... Predicting an intense learning.
+And then the bird hit a wall and fly back again ! It is indeed a omen, a second one ... Predicting an intense learning.
