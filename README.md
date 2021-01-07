@@ -5,3 +5,4 @@ It was a quiet winter morning in my village, just outside of Antwerp. As I was a
 It could be a good omen!
 It could spell out good things in the future.
 I hear the large bird saying "Philippe will become a master coder in under 7 months"
+But then the bird turned into a snake and fell to the ground. Luckely it was winter and a heap of soft snow catched the snake. The snake was a large python and I wondered what it all meant. 
