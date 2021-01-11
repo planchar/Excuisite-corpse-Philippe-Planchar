@@ -14,3 +14,7 @@ The bird rested on a branch while still being dazed from the wall. But little di
 Checking out the branch, the snake came very very close to the bird.
 As it was about to **eat it**... Philippe's computer rang the coffee break.
 The snake was in conflict. "Should I eat now or drink a coffee?", it thought.
+
+Before he could make a decision, unfortunately, the snake died from a heart attack. 
+Sad! 
+But not for the bird, who was now saved from a gruesome death. 
